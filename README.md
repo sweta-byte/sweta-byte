@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...Anything
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...she/her
-- ⚡ Fun fact: ...Music
+- ⚡ Fun fact: ...Music.
 -->
